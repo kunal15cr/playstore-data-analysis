@@ -51,5 +51,5 @@ This data analysis provided valuable insights for game development studios, help
 
 ---
 
-For further details or inquiries, please contact [Cybermimus](mailto:contact@cybermimus.com).
+For further details or inquiries, please contact [Kunal patil](mailto:kunal15cr@gmail.com).
 
